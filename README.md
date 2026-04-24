@@ -6,6 +6,6 @@
 <p align="center">𝐰𝐚𝐥𝐥𝐚𝐡𝐢 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐧𝐨 𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬... 𝐝𝐨 𝐦𝐲 𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬 𝐲𝐚'𝐥𝐥 <𝟑</p>
 <p align="center">꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷</p>
 <p align="center">
-  <img width="800" height="800" src="tumblr_2283de5f9af5cdc7fbac9034c7c18ba9_bb5b0eb2_540 (1).gif">
+  <img width="800" height="800" src="2483d066382b85c189ea45e0f7591f60.gif">
 </p>
 
